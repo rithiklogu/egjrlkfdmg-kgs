@@ -1,1 +1,7 @@
 # egjrlkfdmg-kgs
+
+## LDKFMRHGDL;KM
+KMBKFJDMBLVKCX
+
+
+###  JIUERWKEDGDSN,M
